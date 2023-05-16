@@ -1,0 +1,1 @@
+# diagnostica.github.io
